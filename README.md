@@ -1,14 +1,15 @@
-## hi everyone
+<img width="1000" height="563" alt="githubthing" src="https://github.com/user-attachments/assets/58217d95-a9ad-4401-a54f-ba9ff8554852" />
 
-you may know me from gtcs, or maybe docks.
-though you may rarely see me anywhere else because theres no thomas and friends area, but im also on the mcyt hill.
+<p align="center">
+`` we have set our sights upon the sky ! ^_^ , ,
 
-i tend to be blunt and rude sometimes because i have a short temper. but besides that im nice so feel free to interact
-AND speaking of interacting i also dont mind c+h. dont ask just go for it, unless i have any form of dni or iwc! i love cuddles :)
 
-do not interact if your a proshipper or darkshipper
-interact if your part of any fandom in in! i love meeting people with the same interests with me! especially thomas and friends
+> [strawpage](https://twocaledoniantwins.straw.page/)
+  
+> [2nd strawpage](https://thearlesdalerailway.straw.page/)
 
-<img width="237" height="205" alt="Screen Shot 2026-02-12 at 6 21 08 pm" src="https://github.com/user-attachments/assets/23a6cb04-f467-446d-9f06-82842866000a" />
+> [atabook](https://number1tankengine.atabook.org/)
 
-<sup>art by kayaprojp</sup>
+> [rentry](https://rentry.co/donaldsduck)
+
+> [pronouns](https://pronouns.cc/@theminiaturerailway)
