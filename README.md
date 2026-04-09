@@ -12,4 +12,6 @@
 
 > [rentry](https://rentry.co/donaldsduck)
 
+> [shared rentry](https://rentry.co/psistillhateyou)
+
 > [pronouns](https://pronouns.cc/@theminiaturerailway)
