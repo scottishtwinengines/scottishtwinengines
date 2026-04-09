@@ -10,7 +10,7 @@
 
 > [atabook](https://number1tankengine.atabook.org/)
 
-> [rentry](https://rentry.co/donaldsduck)
+> [rentry](https://rentry.co/donaldanddouglas)
 
 > [shared rentry](https://rentry.co/psistillhateyou)
 
