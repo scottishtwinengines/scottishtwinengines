@@ -3,17 +3,15 @@
 <p align="center">
 `` we have set our sights upon the sky ! ,,
 
+bruh
 
-> [strawpage](https://twocaledoniantwins.straw.page/)
-  
-> [2nd strawpage](https://thearlesdalerailway.straw.page/)
+hi im thomas. Im seen in GTCS OHHHH GTCS GET ME OUT no
 
-> [atabook](https://number1tankengine.atabook.org/)
+I like trains and legos and other fandoms ok im also a yumeshipper ok
 
-> [rentry](https://rentry.co/donaldanddouglas)
-
-> [shared rentry](https://rentry.co/psistillhateyou)
-
-> [pronouns](https://pronouns.cc/@theminiaturerailway)
-
-send me something
+  [strawpage](https://twocaledoniantwins.straw.page/)
+ , [2nd strawpage](https://thearlesdalerailway.straw.page/)
+ , [atabook](https://number1tankengine.atabook.org/)
+ , [rentry](https://rentry.co/donaldanddouglas)
+ , [shared rentry](https://rentry.co/psistillhateyou)
+ , [pronouns](https://pronouns.cc/@theminiaturerailway) 
