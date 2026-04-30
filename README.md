@@ -7,7 +7,7 @@ bruh
 
 hi im thomas. Im seen in GTCS OHHHH GTCS GET ME OUT no
 
-I like trains and legos and other fandoms ok im also a yumeshipper ok
+I like trains and legos and other fandoms ok im also a yumeshipper ok? also please read my rentry
 
   [strawpage](https://twocaledoniantwins.straw.page/)
  , [2nd strawpage](https://thearlesdalerailway.straw.page/)
