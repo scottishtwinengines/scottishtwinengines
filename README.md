@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=your-github-username&color=green)
+
 <img width="1000" height="563" alt="githubthing" src="https://github.com/user-attachments/assets/58217d95-a9ad-4401-a54f-ba9ff8554852" />
 
 <p align="center">
