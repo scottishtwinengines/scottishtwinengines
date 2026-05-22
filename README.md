@@ -2,7 +2,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ" Whos the other guy ??? " 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" WHOS THE OTHER GUY?! "
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" WHOS THE OTHER GUY?! "
 
 <img width="1176" height="795" alt="Screen Shot 2026-05-23 at 12 22 51 am" src="https://github.com/user-attachments/assets/a53d7042-6d91-4ebc-abf3-f960fee9f354" />
 
