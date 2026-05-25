@@ -1,10 +1,11 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-username&color=green)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ" Whos the other guy ??? " 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" WHOS THE OTHER GUY?! "
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ" WACKA WACKA - " 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" DOO DOO, YEAH ! "
 
-<img width="1176" height="795" alt="Screen Shot 2026-05-23 at 12 22 51 am" src="https://github.com/user-attachments/assets/a53d7042-6d91-4ebc-abf3-f960fee9f354" />
+<p align="center">
+<img width="498" height="357" alt="miracle-machine-miracle-machine-albuquerque-1" src="https://github.com/user-attachments/assets/b0b2ab27-db6a-4a44-a82d-f380b08e51c0" />
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
