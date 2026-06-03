@@ -1,9 +1,6 @@
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<p align="center">
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ:)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<p align="center">
+<img src= "https://komarev.com/ghpvc/?username=scottishtwinengines&style=flat&color=ff69b4&label= Booyah!" alt="profile view counter"> </p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 <p align="center">
 <img width="659" height="153" alt="Screen Shot 2026-06-01 at 5 19 08 pm" src="https://github.com/user-attachments/assets/beacacbc-5e6c-4749-9d02-93a881fc8c0d" />
