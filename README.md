@@ -1,9 +1,8 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=scottishtwinengines&style=flat&color=ff69b4&label=Booyah!" alt="profile views"> </p>
+<img src="https://komarev.com/ghpvc/?username=scottishtwinengines&style=flat&color=1e9cfc&label=Passengers" alt="profile views"> </p>
 
 <p align="center">
-<img width="659" height="153" alt="Screen Shot 2026-06-01 at 5 19 08 pm" src="https://github.com/user-attachments/assets/beacacbc-5e6c-4749-9d02-93a881fc8c0d" />
-
+<img width="752" height="313" alt="Screen Shot 2026-06-09 at 8 00 27 pm" src="https://github.com/user-attachments/assets/101093aa-630b-4610-8c9c-edccc60ad4ba" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
