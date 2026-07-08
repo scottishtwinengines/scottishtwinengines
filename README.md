@@ -1,6 +1,5 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&weight=500&size=16&pause=1000&color=FFFFFF&center=true&width=730&lines=%22Overworked%2C+thats+what+we+are%2C%22+He+sympathized.+%22We+need+another+engine!%22)](https://git.io/typing-svg)
 
-
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=scottishtwinengines&style=flat&color=277a38&label=Passengers" alt="profile views"> </p>
 
