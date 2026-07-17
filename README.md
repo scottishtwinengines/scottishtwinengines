@@ -1,10 +1,10 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&weight=500&size=16&pause=1000&color=FFFFFF&center=true&width=730&lines=%22Overworked%2C+thats+what+we+are%2C%22+He+sympathized.+%22We+need+another+engine!%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=15&pause=1000&color=BA2F3C&center=true&vCenter=true&width=685&lines=WACKA+-+WACKA+-+DOO+-+DOO%2C+YEAH!)](https://git.io/typing-svg)
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=scottishtwinengines&style=flat&color=277a38&label=Passengers" alt="profile views"> </p>
+<img src="https://komarev.com/ghpvc/?username=scottishtwinengines&style=flat&color=eb133e&label=Operator!" alt="profile views"> </p>
 
 <p align="center">
-<img width="1000" height="563" alt="02586C90-09C0-408C-A967-E00008A00D64" src="https://github.com/user-attachments/assets/752c7ff5-e5e8-49b8-8c07-7d1c6af2c8c3" />
+<img width="498" height="408" alt="FF4DB8BF-BB61-4FF8-B63E-CF5F931CCDC2" src="https://github.com/user-attachments/assets/38dd2d97-ce68-4470-828d-a693e070067f" />
 
 <p align="center">
   <a href="https://twocaledoniantwins.straw.page/">main straw</a> ㅤ
