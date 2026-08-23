@@ -4,7 +4,9 @@
 <img src="https://komarev.com/ghpvc/?username=scottishtwinengines&style=flat&color=eb133e&label=Operator!" alt="profile views"> </p>
 
 <p align="center">
-<img width="498" height="408" alt="FF4DB8BF-BB61-4FF8-B63E-CF5F931CCDC2" src="https://github.com/user-attachments/assets/38dd2d97-ce68-4470-828d-a693e070067f" />
+<img width="400" height="225" alt="wySTnGEB46ViGKU6Q7" src="https://github.com/user-attachments/assets/78aaa78c-2422-4a87-863d-a366f3f95c46" />
+
+
 
 <p align="center">
   <a href="https://twocaledoniantwins.straw.page/">main straw</a> ㅤ
