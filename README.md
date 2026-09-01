@@ -5,7 +5,8 @@ obviously my name is kel, otherwise known as thomas (the tank engine). I am a pe
 
 ㅤ
 
-<img width="498" height="281" alt="8EACBF68-E0A4-4EA3-ACEB-4D01FAEA6176_4_5005_c" src="https://github.com/user-attachments/assets/57e8ab6f-013f-4d79-b93a-ee6231d05898" />
+<img width="556" height="457" alt="Screen Shot 2026-09-01 at 10 28 38 pm" src="https://github.com/user-attachments/assets/0f9e13f8-ad89-42e5-bf53-ec6c3724c517" />
+
 
 ㅤ
 
