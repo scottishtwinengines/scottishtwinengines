@@ -12,4 +12,4 @@ obviously my name is kel, otherwise known as thomas (the tank engine). I am a pe
 
 current character: coiny from bfdi ♡
 
-[ata](https://nastymajesty.atabook.org/)ㅤ[rentry](https://rentry.co/donaldanddouglas)
+[ata](https://nastymajesty.atabook.org/)ㅤ[rentry](https://rentry.co/donaldanddouglas) [straw](https://twocaledoniantwins.straw.page/)
