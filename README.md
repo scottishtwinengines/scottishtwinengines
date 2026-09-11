@@ -6,7 +6,7 @@ _
 
 this is getting remade for the 10th time so heres basic info. 
 
-obviously my name is kel, otherwise known as thomas (the tank engine). I am a person who occasionally likes to roam around docks or gtcs, or anywhere around the main map with friends. I am open to c+h freely, its actually enc. go ahead, I don't mind it at all. int is also ok, I am friendly and do not bite. hate messages on any sites sent to me will be ignored.
+obviously my name is kel, otherwise known as thomas (the tank engine). I am a person who occasionally likes to roam around docks or gtcs, or anywhere around the main map with friends. I am open to c+h freely, its actually enc. go ahead, I don't mind it at all. int is also ok, I am friendly and do not bite. hate messages on any sites sent to me will be ignored. I love trains!
 
 
 
