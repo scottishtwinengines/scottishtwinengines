@@ -19,4 +19,4 @@ current character: coiny from bfdi ♡
 
 bfdi branches buddies: [@raddogs](https://github.com/raddogs) [@thelasttwilight](https://github.com/thelasttwilight) [@AetherParadise](https://github.com/AetherParadise)
 
-[ata](https://nastymajesty.atabook.org/)ㅤ[straw](https://twocaledoniantwins.straw.page/) [prns.cc](https://prns.cc/zyumc)
+[ata](https://nastymajesty.atabook.org/)ㅤ[straw](https://twocaledoniantwins.straw.page/)ㅤ[prns.cc](https://prns.cc/zyumc)
