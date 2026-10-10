@@ -13,3 +13,6 @@
   <a href="https://twocaledoniantwins.straw.page/">strawp</a> ㅤ
   <a href="https://prns.cc/zyumc">prns.cc</a>
 </p>
+
+<p align="center">
+ty @ title-town , @ pt-walk-of-fame !
